@@ -30,6 +30,6 @@ Monsterたちの音楽ユニットである。
 
 彼のラップはマジで格好良いので、四の五の言わず聴いてほしい。
 
-個人的におすすめは、[コーめあ乙女解剖](https://www.youtube.com/watch?v=KFiTr_f0544,target="_blank")である。
+個人的におすすめは、[コーめあ乙女解剖](https://www.youtube.com/watch?v=KFiTr_f0544)である。
 
 
