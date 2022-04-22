@@ -4,6 +4,10 @@ author: default
 permalink: /
 ---
 
+<head>
+  <link rel="icon" href="https://monsterz-mate.com/wp-content/uploads/2021/06/cropped-mzm_fabicon1-32x32.png">
+</head>
+
 # MonsterZ MATE
 
 ![MZM1](https://balus.co/wp-content/uploads/2020/01/mzm____________.jpg)
