@@ -24,7 +24,7 @@ Monsterたちの音楽ユニットである。
 
 ## コーサカ
 
-![kosaka](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.youtube.com%2Fchannel%2FUC8REE4eU9jDES4w7vqhsvXQ&psig=AOvVaw3AHrq-1YWH0w5tnKnsgJpC&ust=1650709571551000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCLDOncK6p_cCFQAAAAAdAAAAABAD)
+![kosaka](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmonsterz-mate.com%2Fbio&psig=AOvVaw1bLUqhSdT8GCfSow5MN7mv&ust=1650710535597000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCOjxl42-p_cCFQAAAAAdAAAAABAP)
 
 最高に口の悪いラッパー吸血鬼。漏らす(汚)。群馬が産んだ悪魔。基本的に口が悪い。
 
