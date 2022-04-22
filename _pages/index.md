@@ -6,7 +6,7 @@ permalink: /
 
 # MonsterZ MATE
 
-![MZM1]('https://balus.co/wp-content/uploads/2020/01/mzm____________.jpg')
+![MZM1](https://balus.co/wp-content/uploads/2020/01/mzm____________.jpg)
 
 MonsterZ MATE(以下MZM)。それは私が推すVtuberである。
 
@@ -18,18 +18,18 @@ Monsterたちの音楽ユニットである。
 
 おじさん世代、男子高校生、腐の者が母数として多いように見受けられる。
 
-シモが好きな方は、[Y B B]('https://www.youtube.com/watch?v=YlJtlCrlgTk')をみれば一発で気に入るはずだ。
+シモが好きな方は、[Y B B](https://www.youtube.com/watch?v=YlJtlCrlgTk)をみれば一発で気に入るはずだ。
 
-オリ曲は[掌ダンス]('https://www.youtube.com/watch?v=uqpvI-UnJAM')が非常にオヌヌメだ。
+オリ曲は[掌ダンス](https://www.youtube.com/watch?v=uqpvI-UnJAM)が非常にオヌヌメだ。
 
 ## コーサカ
 
-![kosaka]('https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.youtube.com%2Fchannel%2FUC8REE4eU9jDES4w7vqhsvXQ&psig=AOvVaw3AHrq-1YWH0w5tnKnsgJpC&ust=1650709571551000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCLDOncK6p_cCFQAAAAAdAAAAABAD')
+![kosaka](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.youtube.com%2Fchannel%2FUC8REE4eU9jDES4w7vqhsvXQ&psig=AOvVaw3AHrq-1YWH0w5tnKnsgJpC&ust=1650709571551000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCLDOncK6p_cCFQAAAAAdAAAAABAD)
 
 最高に口の悪いラッパー吸血鬼。漏らす(汚)。群馬が産んだ悪魔。基本的に口が悪い。
 
 マジで格好良いので、四の五の言わず聞いてほしい。
 
-個人的におすすめは、[コーめあ乙女解剖]('https://www.youtube.com/watch?v=KFiTr_f0544')　である。
+個人的におすすめは、[コーめあ乙女解剖](https://www.youtube.com/watch?v=KFiTr_f0544)　である。
 
 
