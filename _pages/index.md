@@ -4,9 +4,6 @@ author: default
 permalink: /
 ---
 
-<head>
-  <link rel="icon" href="https://monsterz-mate.com/wp-content/uploads/2021/06/cropped-mzm_fabicon1-32x32.png">
-</head>
 
 # MonsterZ MATE
 
