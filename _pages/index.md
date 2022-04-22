@@ -21,7 +21,11 @@ Monsterたちの音楽ユニットである。
 
 シモが好きな方は、[Y B B](https://www.youtube.com/watch?v=YlJtlCrlgTk)をみれば一発で気に入るはずだ。
 
-オリ曲は[掌ダンス](https://www.youtube.com/watch?v=uqpvI-UnJAM)が非常にオヌヌメだ。
+オリ曲では[掌ダンス](https://www.youtube.com/watch?v=uqpvI-UnJAM)が非常にオヌヌメだ。
+
+誰が持ってるか王選手権は必見である。
+
+最近は専ら<a href="https://www.youtube.com/c/BOOGEYVOXXofficial" target="_blank">ぶぎぼ</a>とのコラボである。
 
 ## コーサカ
 
@@ -32,4 +36,18 @@ Monsterたちの音楽ユニットである。
 彼のラップはマジで格好良いので、四の五の言わず聴いてほしい。
 
 個人的におすすめは、[コーめあ乙女解剖](https://www.youtube.com/watch?v=KFiTr_f0544)である。
+
+テンプレなまでの唐揚げレモン絶許派オタクである。
+
+逆張り。
+
+## アンジョー
+
+![anjo](https://monsterz-mate.com/wp-content/uploads/2021/05/anjo.png)
+
+ポンもコツも極めた超高音狼男。<a href="https://www.youtube.com/watch?v=P5Dt-DbdmBo" target="_blank">お前は子兎音様じゃ無い。</a>兵庫が産んだ鬼才。絵も歌もできる。
+
+マジで格好良いので歌を聴いてほしい。絶対声で孕む。
+
+彼のネタの数々は素晴らしいので日常回も是非みてほしい。
 
