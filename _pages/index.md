@@ -27,10 +27,14 @@ Monsterたちの音楽ユニットである。
 
 ![kosaka](https://monsterz-mate.com/wp-content/uploads/2021/05/kosaka.png)
 
-最高に口の悪いラッパー吸血鬼。漏らす(汚)。群馬が産んだ悪魔。基本的に口が悪い。
+最高に口の悪いラッパー吸血鬼。漏らす(<button onclick="hogehoge()">汚</button>)。群馬が産んだ悪魔。基本的に口が悪い。
 
 彼のラップはマジで格好良いので、四の五の言わず聴いてほしい。
 
 個人的におすすめは、[コーめあ乙女解剖](https://www.youtube.com/watch?v=KFiTr_f0544)である。
 
-
+<script>
+  function hogehoge(){
+    window.open("https://youtu.be/m-jndGK_dpQ",i,"");
+  }
+</script>
