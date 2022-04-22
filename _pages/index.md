@@ -1,5 +1,5 @@
 ---
-title: "MonsterZ MATEを推せ"
+title: "MonsterZ MATEを推せ(迫真)"
 author: default
 permalink: /
 ---
