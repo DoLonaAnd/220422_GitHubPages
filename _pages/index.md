@@ -24,12 +24,12 @@ Monsterたちの音楽ユニットである。
 
 ## コーサカ
 
-![kosaka](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmonsterz-mate.com%2Fbio&psig=AOvVaw1bLUqhSdT8GCfSow5MN7mv&ust=1650710535597000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCOjxl42-p_cCFQAAAAAdAAAAABAP)
+![kosaka](https://monsterz-mate.com/wp-content/uploads/2021/05/kosaka.png)
 
 最高に口の悪いラッパー吸血鬼。漏らす(汚)。群馬が産んだ悪魔。基本的に口が悪い。
 
 マジで格好良いので、四の五の言わず聞いてほしい。
 
-個人的におすすめは、[コーめあ乙女解剖](https://www.youtube.com/watch?v=KFiTr_f0544)　である。
+個人的におすすめは、[コーめあ乙女解剖](https://www.youtube.com/watch?v=KFiTr_f0544)である。
 
 
