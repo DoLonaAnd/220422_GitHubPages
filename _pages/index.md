@@ -8,7 +8,7 @@ permalink: /
 
 ![MZM1](https://balus.co/wp-content/uploads/2020/01/mzm____________.jpg)
 
-MonsterZ MATE(以下MZM)。それは私が推すVtuberである。
+MonsterZ MATE(以下MZM)。それは私が推すVtuberユニットである。
 
 ラッパー吸血鬼、ユルミラー＝ヴァン＝コーサカ。超高音狼男、アンジョーダイスケ。
 
