@@ -16,6 +16,12 @@ Monsterたちの音楽ユニットである。
 
 **BL、TS、百合全てを可能にした悪魔的ユニットである。マジで控えめに言って尊い。**
 
+おじさん世代、男子高校生、腐の者が母数として多いように見受けられる。
+
+シモが好きな方は、[Y B B]('https://www.youtube.com/watch?v=YlJtlCrlgTk')をみれば一発で気に入るはずだ。
+
+オリ曲は[掌ダンス]('https://www.youtube.com/watch?v=uqpvI-UnJAM')が非常にオヌヌメだ。
+
 ## コーサカ
 
 ![kosaka]('https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.youtube.com%2Fchannel%2FUC8REE4eU9jDES4w7vqhsvXQ&psig=AOvVaw3AHrq-1YWH0w5tnKnsgJpC&ust=1650709571551000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCLDOncK6p_cCFQAAAAAdAAAAABAD')
@@ -25,3 +31,5 @@ Monsterたちの音楽ユニットである。
 マジで格好良いので、四の五の言わず聞いてほしい。
 
 個人的におすすめは、[コーめあ乙女解剖]('https://www.youtube.com/watch?v=KFiTr_f0544')　である。
+
+
